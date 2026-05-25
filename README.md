@@ -16,3 +16,5 @@ Fun Facts:
 
 -I've only seen one anime (Dragon ball Z).
 
+-I love rock and roll.
+
